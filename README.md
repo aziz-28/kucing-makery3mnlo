@@ -1,1 +1,0 @@
-# kucing-makery3mnlo
